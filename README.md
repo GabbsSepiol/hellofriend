@@ -1,2 +1,0 @@
-# hellofriend
-boi
